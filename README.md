@@ -1,0 +1,1 @@
+Diplomes from [SoloLearn](https://www.sololearn.com)
